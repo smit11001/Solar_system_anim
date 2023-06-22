@@ -8,9 +8,8 @@ Solar planets where each planets show its information
 
 
 
-Uploading XRecorder_20062023_140651.mp4…
+
+https://github.com/smit11001/Solar_system_anim/assets/113500028/34f088d9-901e-43df-b5e0-77c30e309b51
 
 
-
-Uploading XRecorder_20062023_140651.mp4…
 
